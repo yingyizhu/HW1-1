@@ -1,2 +1,0 @@
-Yingyi Zhu
-Chicago Cub
